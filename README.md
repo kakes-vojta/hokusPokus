@@ -1,0 +1,1 @@
+thole je skvělý nápad
