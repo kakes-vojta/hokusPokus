@@ -1,1 +1,1 @@
-thole je skvělý nápad
+tohle je skvělý nápad
